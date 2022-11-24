@@ -1,1 +1,0 @@
-# patkosbence.github.io
